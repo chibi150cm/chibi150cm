@@ -1,9 +1,8 @@
 - 👋 Hi, I’m @chibi150cm
-- 👀 I’m interested in anime and japan things.
+- 👀 I’m interested in anime and weird things.
 - 🌱 I’m currently learning programación perroooooooo
-- 💞️ I’m looking to collaborate on IDK
-- 📫 How to reach me, no, you can't reach me.
-- 😄 Pronouns: She/her
+- 📫 How to reach me? no, you can't reach me. I'm hiding from you.
+- 😄 Pronouns: She/her, but idc
 - ⚡ Fun fact: I'm meowmeow u
 
 <!---
