@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @chibi150cm
-- 👀 I’m interested in anime and weird things.
-- 🌱 I’m currently learning programación perroooooooo
-- 📫 How to reach me? no, you can't reach me. I'm hiding from you.
+- 👀 I’m interested in anime and weird things. im old and sad, but DATs ok.
+- 🌱 I’m currently learning DATA, PIPELINES, CLOUD SH1T, DA FAK IS DAT OMG BUT OK, I NEED MONEY WWWWWWWW.
+- 📫 How to reach me? no, ucan't reach me. i'm hiding from u, im scared
 - 😄 Pronouns: She/her, but idc
-- ⚡ Fun fact: I'm meowmeow u
+- ⚡ Fun fact: I'm meowmeow my lvly cat. iloveu kiki ♡.
 
 <!---
 chibi150cm/chibi150cm is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
